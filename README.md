@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @STELLA5MARSBO
+- 👀 I’m interested in: LEARNING
+- 🌱 I’m currently learning: C and Logic.
+- 📫 How to reach me: My e-mail.
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact:I’m currently working on an amazing project focused on health technology, although I still feel a bit shy about sharing it publicly.
